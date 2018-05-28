@@ -1,2 +1,3 @@
 # new-gravity.pl
-null
+
+Contact: live:kosusad; fb.com/kosu.sad.1
